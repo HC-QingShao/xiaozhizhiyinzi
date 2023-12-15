@@ -1,4 +1,4 @@
-小红书：小只只因子；哔哩哔哩：小只只因子-俗爱集团
+清少耶
 
 <!---
 xiaozhizhiyinzi/xiaozhizhiyinzi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
